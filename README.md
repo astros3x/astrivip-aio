@@ -8,7 +8,7 @@
 </div>
 
 # 📍 About
-This tool is included with the vip access of astri-ie discord server. (ds to buy)
+This tool is included with the vip access of astri-ie discord server. (ds to buy)  </br>
 Preview + features > [click here](https://mega.nz/folder/htwFWIJS#A1m1of1e1pOdfzyBs9bz_Q/file/g9phyIyb)
 
 ## :warning: Disclaimer
